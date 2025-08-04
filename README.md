@@ -9,7 +9,7 @@ Activities:
 The day began with a spiritual start through Kirtan and Path to invoke blessings for a positive academic journey.
 
 Refreshments were served to the newly admitted students after the session.
-After that our seniors also help us to visit our department.where our department teacher interodue us with our branch.
+After that our seniors also help us to visit our department.where our department teacher introduce us with our branch.
 Later, faculty members addressed the students and motivated them to set clear goals and work hard for their success.
 
 They also introduced the college values, discipline, and support system available for students.
